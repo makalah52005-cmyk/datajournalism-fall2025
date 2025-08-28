@@ -1,1 +1,1 @@
-
+Makalah Vaughn
